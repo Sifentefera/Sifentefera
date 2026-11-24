@@ -1,6 +1,4 @@
 - 👋 Hi, I’m Sifentefera
-- 👀 I’m interested in coding 
-- 🌱 I’m currently learning Phyhon mystery 
 - 📫 How to reach me through Email: Sifenbtefera@gmail.com 
 - 😄 Pronouns: She/ Her
 - ⚡ Fun fact: I am terrified of big eyes   
